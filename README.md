@@ -1,2 +1,2 @@
-# adaamsoucek.github.io
+# adamsoucek.github.io
 wooow
